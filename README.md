@@ -1,1 +1,3 @@
-<img width="1700" height="460" alt="github-header-banner (1)" src="https://github.com/user-attachments/assets/7ee5c7f4-a5e4-4c08-9a43-b33422405144" />
+<img width="1700" height="460" alt="github-header-banner (2)" src="https://github.com/user-attachments/assets/b38f1be9-99b6-4d2b-af3a-e75cf127c524" />
+
+# ABOUT ME 
