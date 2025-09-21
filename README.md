@@ -21,9 +21,12 @@ I like music and singing but most of all I love gaming!
 <h1 align="center">☕🐍🌊</h1>
 
 ## Project Links
-[Midterm Paired Task 1](https://docs.google.com/document/d/168zlUaCkS8MI8Egw8mswxzKvZMo2p1wgC8JTXfxWF2A/edit?usp=sharing) <br>
-[Midterm Lab Task 1](https://docs.google.com/document/d/1H0tLdxs3lSttTze-rP4qMwl1dCmdoHmxdq3DmtwxPU8/edit?usp=sharing) <br>
-[Midterm Lab Task 2](https://drive.google.com/file/d/1vr_s331wBJ09lPw-kbgvnr1K8nmZG_sd/view)
+[Midterm Paired Task 1](https://docs.google.com/document/d/1k6nrV-B6ZsjLcHLRbdho_AGRCIUi0HmFpmMyYx62Y7U/edit?usp=sharing) <br>
+[Midterm Lab Task 1](https://docs.google.com/document/d/1dZqBOe-jKK36t_NuLSxd46qY3YplKpG5pWCh9JwgulY/edit?usp=sharing) <br>
+[Midterm Lab Task 2](https://docs.google.com/document/d/1oTAJEtRCqboAiGpJjy8G0u_FklBSzN5pJg06LeV01Y8/edit?usp=sharing) <br>
+[Practice Task](https://docs.google.com/document/d/18TWNnV0cxSg1js_vMVL-_RfANAndRHH7xsjWbLaib08/edit?usp=sharing) <br>
+[Midterm Lab Task 3](https://docs.google.com/document/d/1Ad53XnQICES-XSk4hwE8BfnmJoiyzgMIJAPpQYyzFDE/edit?usp=sharing) <br>
+[Midterm Lab Task 4](https://docs.google.com/document/d/12QqbKo08g5Av6MzE0RE6hcTYc7Z56qABhqwCa4g-43Q/edit?usp=sharing)
 
 # Fun Facts About me
 **😜🐙🐟I love Sea Food!** <br>
