@@ -28,7 +28,8 @@ I like music and singing but most of all I love gaming!
 [Midterm Lab Task 3](https://docs.google.com/document/d/1Ad53XnQICES-XSk4hwE8BfnmJoiyzgMIJAPpQYyzFDE/edit?usp=sharing) <br>
 [Midterm Lab Task 4](https://docs.google.com/document/d/12QqbKo08g5Av6MzE0RE6hcTYc7Z56qABhqwCa4g-43Q/edit?usp=sharing) <br>
 [Midterm Lab Task 5](https://docs.google.com/document/d/17KYBR33KV1wRY1N10nK0QEREko1A0vX5TmDbUhKNcFE/edit?usp=sharing) <br>
-[Midterm Lab Task 6](https://docs.google.com/document/d/1srbWUvbwBU64aq4YaYHE4nEYhZh1mr1kNzhfk7sglAA/edit?usp=sharing)
+[Midterm Lab Task 6](https://docs.google.com/document/d/1srbWUvbwBU64aq4YaYHE4nEYhZh1mr1kNzhfk7sglAA/edit?usp=sharing) <br>
+[Finals Lab Task 1](https://docs.google.com/document/d/13btjwh8g8suxKzuxKTLG4f5vz1LUC6mNVDJthfqzg70/edit?usp=sharing)
 
 # Fun Facts About me
 **😜🐙🐟I love Sea Food!** <br>
