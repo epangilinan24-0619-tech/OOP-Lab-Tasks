@@ -31,7 +31,13 @@ I like music and singing but most of all I love gaming!
 [Midterm Lab Task 6](https://docs.google.com/document/d/1srbWUvbwBU64aq4YaYHE4nEYhZh1mr1kNzhfk7sglAA/edit?usp=sharing) <br>
 [Finals Lab Task 1](https://docs.google.com/document/d/13btjwh8g8suxKzuxKTLG4f5vz1LUC6mNVDJthfqzg70/edit?usp=sharing) <br>
 [Finals Lab Task 2](https://docs.google.com/document/d/1w8tCDl9cSFj3FpmUWHwd9ODbTIhowuuZjK3tXLhO0C0/edit?usp=sharing) <br>
-[Finals Lab Task 3](https://docs.google.com/document/d/1HLghIoRqQMvedLxWs38UALe60rBmXYudj8fILQ2uGZc/edit?usp=sharing)
+[Finals Lab Task 3](https://docs.google.com/document/d/1HLghIoRqQMvedLxWs38UALe60rBmXYudj8fILQ2uGZc/edit?usp=sharing) <br>
+[Practice Demo](https://docs.google.com/document/d/11q8Z6lJ25S9-SnxhNg5c-Y6gpQstxPFI84e-5idL_YU/edit?usp=sharing) <br>
+[Finals Lab Task 4](https://docs.google.com/document/d/11uQb-HmK5j_UXEcuKZTvJkvDsZHt8CfMdIitZ30IdEY/edit?usp=sharing) <br>
+[Finals Lab Task 5](https://docs.google.com/document/d/1H1wmQNMGaZ6nEJz7ssZoxeEEtX6-TNTHPBMXc9uHUlA/edit?usp=sharing) <br>
+[Finals Lab Task 6](https://docs.google.com/document/d/1FzeqzIO9HUFL7SuzJ3sNWwO3XEhlh3hew4nRbyqpsCM/edit?usp=sharing) <br>
+[Finals Lab Task 7](https://docs.google.com/document/d/1HH1NqwhBw9nzJFWArIWy6xnmfQxY3wTAHKoVmYxE8Tk/edit?usp=sharing)
+
 
 # Fun Facts About me
 **😜🐙🐟I love Sea Food!** <br>
